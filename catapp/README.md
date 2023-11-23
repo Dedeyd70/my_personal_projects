@@ -1,0 +1,1 @@
+Cats, scientifically known as Felis catus, are small carnivorous mammals that have been cherished companions to humans for thousands of years. Renowned for their independent nature, agility, and distinctive personalities, cats come in a variety of breeds, each with its own unique characteristics. 
